@@ -1,4 +1,4 @@
-#Miguel Gonzalez
+#Miguel G.
 #Due 3/11/19
 #Assignment05
 
